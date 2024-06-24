@@ -2,8 +2,8 @@
 
 知乎日报等  
 
-相对论
-https://daily.zhihu.com/story/9773031 知乎日报  
+相对论  
+https://daily.zhihu.com/story/9773031 知乎日报    
 
 人为什么会喜欢把手插到超市的米箱或者豆箱里
 https://daily.zhihu.com/story/9773402    
