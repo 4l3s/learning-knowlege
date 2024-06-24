@@ -6,7 +6,7 @@
 相对论  知乎日报    
 https://daily.zhihu.com/story/9773031     
 双缝干涉  知乎日报      
-https://daily.zhihu.com/story/9772658 
+https://daily.zhihu.com/story/9772658  
 最速降曲线  
 https://kexue.fm/archives/1094  
 
