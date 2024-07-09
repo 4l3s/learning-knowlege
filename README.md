@@ -23,7 +23,12 @@ https://daily.zhihu.com/story/9772992
 
 ## 文化历史
 成都博物馆姑姑筵  
-https://daily.zhihu.com/story/9773304
+https://daily.zhihu.com/story/9773304  
+文化连续只有中国
+https://daily.zhihu.com/story/9763068
+一个文明在文化史上的连续性必须有以下两个方面的体现：  
+1，语言文字发展的连续性，这是一种文化赖以流传的工具或形式的连续性；  
+2，学术传统（其中尤其是直接反映历史连续性的史学传统）的连续性，这是一种文化的精神内容的连续性。
 
 bilibili  
 https://www.bilibili.com/video/BV1UP411D7z2/?spm_id_from=333.337.search-card.all.click  
