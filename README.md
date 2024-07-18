@@ -22,6 +22,8 @@ https://daily.zhihu.com/story/9773402
 https://daily.zhihu.com/story/9772992   
 发电厂为什么要输出交流电，而不是直流  
 https://daily.zhihu.com/story/9773602  
+人为什么有指纹，动物为什么有花纹  
+https://daily.zhihu.com/story/9773854  
 
 ## 文化历史
 成都博物馆姑姑筵  
