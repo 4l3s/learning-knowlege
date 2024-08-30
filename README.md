@@ -26,6 +26,8 @@ https://daily.zhihu.com/story/9772992
 https://daily.zhihu.com/story/9773602  
 人为什么有指纹，动物为什么有花纹  
 https://daily.zhihu.com/story/9773854  
+泥巴是怎么做成瓷器的  
+https://daily.zhihu.com/story/9774902  
 
 ## 文化历史
 成都博物馆姑姑筵  
