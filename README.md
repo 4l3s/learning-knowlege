@@ -30,6 +30,8 @@ https://daily.zhihu.com/story/9773854
 https://daily.zhihu.com/story/9774902  
 四川为什么叫四川  
 https://daily.zhihu.com/story/9775046  
+电磁的历史  
+https://daily.zhihu.com/story/9775069  
 
 ## 文化历史
 成都博物馆姑姑筵  
