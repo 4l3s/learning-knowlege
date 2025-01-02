@@ -19,6 +19,8 @@ https://daily.zhihu.com/story/9773402
 3大米挤压感，类似按摩。促进静脉血回流，类似按摩， 
 人为什么会走神  
 https://daily.zhihu.com/story/9773953  
+内存划分为什么要分为堆和栈，当初设计这两个的时候分别是要解决什么问题？ - 尼布甲尼撒的回答 - 知乎  
+https://www.zhihu.com/question/447017261/answer/3546212021
 
 傅里叶变换  
 https://daily.zhihu.com/story/9772992   
